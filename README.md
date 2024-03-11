@@ -1,5 +1,4 @@
-♥ oiiee eu sou a rafa!! 💞️
-♥ no momento eu estou aprendendo
+♥ oiiee eu sou a rafa!! 💞️ ♥ no momento eu estou aprendendo
  a usar essa plataforma. 🌺
 ♥ pretendo esse ano começar alguns projetos.
 ♥ sou nova nessas coisas então
