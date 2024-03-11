@@ -1,11 +1,10 @@
-♥ oiiee eu sou a rafa!! 💞️ 
-♥ no momento eu estou aprendendo
- a usar essa plataforma. 🌺
-♥ pretendo esse ano começar alguns projetos.
-♥ sou nova nessas coisas então
+- ♥ oiiee eu sou a rafa!! 💞️ 
+- ♥ no momento eu estou aprendendo
+-  a usar essa plataforma. 🌺
+- ♥ pretendo esse ano começar alguns projetos sobre sites e tudo mais.
+- ♥ sou nova nessas coisas então
  estou anciosa para iniciar nisso tudo.
-♥ ela/dela ♡ *: ･ ﾟ ✧ *: ･ ﾟ ✧
-♥ eu amooo ler, escutar música e tocar teclado!! 🎹💕
-♥ meu gmail no momento está sendo
-rafaela.bueno.martins@escola.pr.gov.br 
-♥ é isso!! ︵‿୨💗୧‿︵
+- ♥ ela/dela ♡ *: ･ ﾟ ✧ *: ･ ﾟ ✧
+- ♥ eu amooo ler, escutar música e tocar teclado!! 🎹💕
+- ♥ pretendo alcançar todas as minhas metas esse ano.
+- ♥ é isso!! ︵‿୨💗୧‿︵
